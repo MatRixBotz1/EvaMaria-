@@ -1,6 +1,6 @@
 </p>
 <h1 align="center">
-  <b>𝓚𝓤𝓣𝓣𝓤 𝓑𝓞𝓣✔✔✔😁</b>
+  <b>EVAMARIA</b>
 </h1>
 
 
@@ -102,4 +102,3 @@ Selling The Codes To Other People For Money Is *Strictly Prohibited*.
 
 
 
-[![For Vaza](https://telegra.ph/file/a95bbb80738fd1c41b267.jpg)](https://telegra.ph/file/98342dc186fd7484cba91.mp4 "Oru Kootam Vazhakalk samarpikkunnu")
